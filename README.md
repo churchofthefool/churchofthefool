@@ -3,8 +3,13 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 </p>
 
 <p align="center">
-hi guys im yuki i like women plz read my links i set my account status on ponytown offline thanks <br> ill make this pretty i promis
+hi guys im yuki i like women plz read my links i set my account status on ponytown offline thanks <br> ill make this pretty i promizz
 </p>
+
+<div align="center">
+  
+go look at my [alt](github.com/fuyunohanashi) if u want it pretty idk
+</div>
 
 <p align="center">
 <img src="https://media1.tenor.com/m/39aIuAIYANcAAAAC/akito-akito-shinonome.gif"/> 
