@@ -10,6 +10,8 @@ hi guys im yuki i like women plz read my links i set my account status on ponyto
 <img src="https://media1.tenor.com/m/39aIuAIYANcAAAAC/akito-akito-shinonome.gif"/> 
 <img src="https://media1.tenor.com/m/hKn-2mEKIYUAAAAd/roblox-hop-on-roblox.gif"/>
 <img src="https://media1.tenor.com/m/BEE3-J5ShAEAAAAC/akito-shinonome-go-away.gif"/>
+<img src="https://media1.tenor.com/m/vgdM06OiqdkAAAAC/project-sekai-sekai.gif"/>
+<img src="https://media1.tenor.com/m/g1sANXCwy4UAAAAC/akito-shinonome.gif"/>
 </p>
 
 <p align="right">
