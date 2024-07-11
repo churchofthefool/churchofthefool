@@ -6,7 +6,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 hi guys im yuki i like women plz read my links i set my account status on ponytown offline thanks <br> ill make this pretty i promis
 </p>
 
-<img src=" [(https://media1.tenor.com/m/39aIuAIYANcAAAAC/akito-akito-shinonome.gif)] "/>
+<img src="https://media1.tenor.com/m/39aIuAIYANcAAAAC/akito-akito-shinonome.gif"/>
   
 <p align="right">
 $\mathcal{\color{orange}{不確かだとしても僕の鼓動}}$ <br> $\mathcal{\color{orange}{it \ might \ be \ unsteady \ but \ even \ so \ this \ is \ my \ pulse }}$
