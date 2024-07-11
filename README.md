@@ -3,7 +3,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 </p>
 
 <p align="center">
-heh i dont know how to make a readme
+hi guys im yuki i like women plz read my links i set my account status on ponytown offline thanks <br> ill make this pretty i promis
 </p>
 
 <p align="right">
