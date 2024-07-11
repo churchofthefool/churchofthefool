@@ -8,7 +8,7 @@ hi guys im yuki i like women plz read my links i set my account status on ponyto
 
 <div align="center">
   
-go look at my [alt](github.com/fuyunohanashi) if u want it pretty idk
+go look at my [alt](https://github.com/fuyunohanashi) if u want it pretty idk
 </div>
 
 <p align="center">
