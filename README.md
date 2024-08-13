@@ -3,7 +3,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 </p>
 
 <p align="center">
-i certify myself silly :3 
+#1 akito hater!!!!!!! 
 <br> hi im yuki i like setting my account status offline in ponytown thanks
 <br> ill make this pretty i promizz
 </p>
