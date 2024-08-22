@@ -4,7 +4,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 
 <p align="center">
 #1 akito hater!!!!!!! 
-<br> hi im yuki(or any other online name that u know of me) i like setting my account status offline in ponytown thanks
+<br> hello i am github userr winterrstory i am collecting my offline status in ponytown tx
 <br> ill make this pretty i promizz
 </p>
 
