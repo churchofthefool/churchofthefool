@@ -5,7 +5,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 <p align="center">
 #1 akito hater!!!!!!! 
 <br> hello i am github userr winterrstory i am collecting my offline status in ponytown tx
-<br> <img src="https://cdn.discordapp.com/attachments/950990549727445002/1276642401376665740/image.png?ex=66ca4563&is=66c8f3e3&hm=632ba1d38bcf0bbc1d51f2a6e3e7576034a2600b039df149d3f7f10756289f36"/>
+<br> <img src="https://cdn.discordapp.com/attachments/950990549727445002/1276642401376665740/image.png?ex=66ca4563&is=66c8f3e3&hm=632ba1d38bcf0bbc1d51f2a6e3e7576034a2600b039df149d3f7f10756289f36"/> <-this freak here is me
 <br> ill make this pretty i promizz
 </p>
 
