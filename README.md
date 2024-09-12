@@ -4,7 +4,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 
 <p align="center">
 #1 akito hater!!!!!!! 
-<br> hello i am github userr winterrstory i am dying bcuz of school ty
+<br> hello i am github userr winterrstory I HAVE SCHOOL!! WTF!!!! PLS SEND HELP !!!!
 <br> i go by lowell(yuki) on pt ig.... <img src="https://cdn.discordapp.com/attachments/721694456859983894/1279168463633518654/image.png?ex=66d375f7&is=66d22477&hm=32d0838cece7a588e4141849474b0c3cdbf77b6f31be108d63f25995eeffd69c&"/>
 <br> ill make this pretty i promizz
 </p>
