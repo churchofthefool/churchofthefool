@@ -4,8 +4,8 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 
 <p align="center">
 #1 akito hater!!!!!!! 
-<br> hello i am github userr winterrstory I HAVE SCHOOL!! WTF!!!! PLS SEND HELP !!!!
-<br> i go by lowell(yuki) on pt ig....but pls call me lowell ^_^ i uhh kindawent kaboom on pt cuz i had no motivation to get on ;_;
+<br> hello i am github userr winterrstory i go by lowell(yuki) on pt ig....but pls call me lowell ^_^ 
+<br> i uhh kindawent kaboom on pt cuz i had no motivation to get on ;_; im back!!! though but find me on rblx teehee
 <br> chronic offline status-er 
 <br> cuddles+hide sure idgaf ⨯ non-speaking mostly/i cannot socialise for the life of me 
 </p>
