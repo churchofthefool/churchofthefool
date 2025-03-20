@@ -6,7 +6,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 #1 akito hater!!!!!!! fil/eng is okaay, fixing up this a bit
 
 <p align="center">
-<img src="https://tenor.com/view/akitouya42069-akito-shinonome-akito-gif-2563674125747568521"/> 
+<img src="https://c.tenor.com/I5QACNELP4kAAAAC/tenor.gif"/> 
 </p>
 
 <p align="right">
