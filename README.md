@@ -3,24 +3,10 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 </p>
 
 <p align="center">
-#1 akito hater!!!!!!! fil/eng is okaay
-<br> hello i am github userr lowellaine, prev name was yuki ig...
-<br> i uhh kindawent kaboom on pt cuz i had no motivation to get on ;_; im back!!! though but find me on rblx teehee
-<br> chronic offline status-er, friend me if u want idm ♪(´▽｀) 
-<br> cuddles+hide sure idgaf ⨯ non-speaking mostly/i cannot socialise for the life of me (severe anxeity also kinda slow brain) 
-</p>
-
-<div align="center">
-  
-go look at my [alt](https://github.com/fuyunohanashi) if u want it pretty idk
-</div>
+#1 akito hater!!!!!!! fil/eng is okaay, fixing up this a bit
 
 <p align="center">
-<img src="https://media1.tenor.com/m/39aIuAIYANcAAAAC/akito-akito-shinonome.gif"/> 
-<img src="https://media1.tenor.com/m/hKn-2mEKIYUAAAAd/roblox-hop-on-roblox.gif"/>
-<img src="https://media1.tenor.com/m/BEE3-J5ShAEAAAAC/akito-shinonome-go-away.gif"/>
-<img src="https://media1.tenor.com/m/vgdM06OiqdkAAAAC/project-sekai-sekai.gif"/>
-<img src="https://media1.tenor.com/m/g1sANXCwy4UAAAAC/akito-shinonome.gif"/> ugly ass man
+<img src="[https://media1.tenor.com/m/39aIuAIYANcAAAAC/akito-akito-shinonome.gif](https://media1.tenor.com/m/I5QACNELP4kAAAAC/akitouya42069-akito-shinonome.gif)"/> 
 </p>
 
 <p align="right">
