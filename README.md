@@ -4,7 +4,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 
 <p align="center">
 #1 akito hater!!!!!!! fil/eng is okaay, <a href="https://rentry.co/han_yoojin">me</a>
-<br> i swear im actually watching link click im just not locked in 💔
+<br> me when ive changed my user for the nth time 😂😂😂😂😂😆😂😆 
 
 <p align="center">
 <img src="https://media1.tenor.com/m/BibE-NaZ0_0AAAAC/gsgw-gdcg.gif"/> 
