@@ -3,7 +3,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 </p>
 
 <p align="center">
-#1 akito hater!!!!!!! fil/eng is okaay, <a href="https://rentry.co/han_yoojin">me</a>
+#1 akito hater!!!!!!! fil/eng is okaay, <a href="https://rentry.co/han_yoojin">rentry1, <a href="https://rentry.co/kim_soleum">rentry2</a>
 <br> me when ive changed my user for the nth time 😂😂😂😂😂😆😂😆 
 
 <p align="center">
