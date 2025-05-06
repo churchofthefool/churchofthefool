@@ -4,7 +4,7 @@ $\mathcal{\color{orange}{心の臓よ, \ 動け,\ 動け！}}$ <br> $\mathcal{\c
 
 <p align="center">
 #1 akito hater!!!!!!! fil/eng is okaay, <a href="https://rentry.co/han_yoojin">brightassrentry , <a href="https://rentry.co/kim_soleum">easyreadrentry</a>
-<br> me when ive changed my user for the nth time 😂😂😂😂😂😆😂😆 
+<br> school is taking over me!!!!!!!!! i have two wolves inside, school and Hello, Jon. Apologies for the deception, but I wanted to make sure you started reading, so I thought it best not to announce myself-
 
 <p align="center">
 <img src="https://media1.tenor.com/m/BibE-NaZ0_0AAAAC/gsgw-gdcg.gif"/> 
