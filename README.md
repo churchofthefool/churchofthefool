@@ -6,7 +6,7 @@
 <br> school is taking over me!!!!!!!!! i have two wolves inside, school and Hello, Jon. Apologies for the deception, but I wanted to make sure you started reading, so I thought it best not to announce myself- ngl im a very good meal for the flesh hive and the uncanny
 
 <p align="center">
-<img src="https://media1.tenor.com/m/BibE-NaZ0_0AAAAC/gsgw-gdcg.gif"/> 
+<img src="https://tenor.com/view/tma-the-magnus-archives-tma-meme-gif-16961988675924882064"/> 
 </p>
 
 <p align="center">
