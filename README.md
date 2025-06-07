@@ -2,8 +2,8 @@
 <i>i do not know why the hive chose me but it did.</i>
 
 <p align="center">
-#1 akito hater!!!!!!! <b>fil/eng</b> is okaay, <a href="https://rentry.co/han_yoojin">brightassrentry , <a href="https://rentry.co/kim_soleum">easyreadrentry</a>
-<br> school is taking over me!!!!!!!!! i have two wolves inside, school and Hello, Jon. Apologies for the deception, but I wanted to make sure you started reading, so I thought it best not to announce myself- ngl im a very good meal for the flesh hive and the uncanny <br> <strong> <a href="https://roedeer.atabook.org/"> atabook spam me </a> </strong>
+#1 akito hater!!!!!!! <b>fil/eng</b> is okaay, , <a href="https://rentry.co/kim_soleum">ass rentry</a> <strong> <a href="https://roedeer.atabook.org/"> atabook spam me </a> </strong>
+<br> school is taking over me!!!!!!!!! i have two wolves inside, school and Hello, Jon. Apologies for the deception, but I wanted to make sure you started reading, so I thought it best not to announce myself- ngl im a very good meal for the flesh hive and the uncanny <br> 
 
 <p align="center">
 <img>
