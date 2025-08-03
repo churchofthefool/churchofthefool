@@ -3,7 +3,7 @@
 
 <p align="center">
 #1 akito hater!!!!!!! <b>fil/eng</b> is okaay, , <a href="https://rentry.co/kim_soleum">ass rentry</a> <strong> <a href="https://roedeer.atabook.org/"> atabook spam me </a> </strong>
-<br> school is taking over me!!!!!!!!! i have two wolves inside, school and Hello, Jon. Apologies for the deception, but I wanted to make sure you started reading, so I thought it best not to announce myself- ngl im a very good meal for the flesh hive and the uncanny <br> 
+<br> i hibernate every so often but iswear im back!!!!!!! <br> 
 
 <p align="center">
 <img>
