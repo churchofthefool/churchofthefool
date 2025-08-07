@@ -2,12 +2,12 @@
 <i>i do not know why the hive chose me but it did.</i>
 
 <p align="center">
-#1 akito hater!!!!!!! <b>fil/eng</b> is okaay, , <a href="https://rentry.co/kim_soleum">ass rentry</a> <strong> <a href="https://roedeer.atabook.org/"> atabook spam me </a> </strong>
-<br> i hibernate every so often but iswear im back!!!!!!! <br> 
+#1 akito hater!!!!!!! <b>fil/eng</b> is okaay, <strong><a href="https://sunfishidol.carrd.co/">carrd!!</a></strong> <a href="https://rentry.co/kim_soleum">ass rentry</a> <strong> <a href="https://roedeer.atabook.org/"> atabook spam me </a></strong>  
+<br> i hibernate every so often but iswear im back!!!!!!! i am sigma guys!!! sigma the character!!!!! <br> 
 
 <p align="center">
 <img>
-<img src="https://media1.tenor.com/m/FrzEsk15-90AAAAC/tma-the-magnus-archives.gif"/> <br> <img src="https://media1.tenor.com/m/0kWFezSy8GkAAAAd/magnus-archives-magnus-institute.gif"/>
+<img src="https://media1.tenor.com/m/-cmifLLOg9IAAAAC/sigma-sigma-bsd.gif"/> <br>
 </p>
 
 <p align="center">
