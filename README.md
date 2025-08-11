@@ -2,7 +2,7 @@
 <i>i do not know why the hive chose me but it did.</i>
 
 <p align="center">
-#1 akito hater!!!!!!! <b>fil/eng</b> is okaay, <strong><a href="https://sunfishidol.carrd.co/">carrd!!</a></strong> <a href="https://rentry.co/kim_soleum">rentry</a> <strong> <a href="https://roedeer.atabook.org/"> atabook spam me </a></strong>  
+lowell is #1 akito hater!!!!!!! <b>fil/eng</b> is okaay, <strong><a href="https://sunfishidol.carrd.co/">carrd!!</a></strong> <a href="https://rentry.co/kim_soleum">rentry</a> <strong> <a href="https://roedeer.atabook.org/"> atabook</a></strong>  
 <br> i hibernate every so often but iswear im back!!!!!!! i am sigma guys!!! sigma the character!!!!! <br> 
 <br> gsgw truthers hmu 😼<br>
 
