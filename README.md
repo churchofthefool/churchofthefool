@@ -12,7 +12,13 @@ lowell is #1 akito hater!!!!!!! <b>fil/eng</b> is okaay, <strong><a href="https:
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/1c24fab9e4c2a272085173328dd3a8d0/tumblr_ozqv4uH4oW1wvu485o9_250.gif"/> since this is a ponytown thing c+h freely! idm unless im already with gang :3
+<img src="https://64.media.tumblr.com/1c24fab9e4c2a272085173328dd3a8d0/tumblr_ozqv4uH4oW1wvu485o9_250.gif"/> 
+
+<p align="center">
+<img>
+ since this is a ponytown thing c+h freely! idm unless im already with gang :3 <br> <img src="https://i.postimg.cc/vBzJ7VJm/pontown.png"/>  <br> happy almost 400days 😼
+</p>
+
 
 <p align="right">
 <i>there is a wasps' nest in my attic. perhaps it can soothe my itching soul.</i>
