@@ -2,7 +2,7 @@
 <i>i do not know why the hive chose me but it did.</i>
 
 <p align="center">
-<br> i hibernate every so often but iswear im back!!!!!!! i am sigma guys!!! sigma the character!!!!!
+<br> i loved the name kimsoleum but churchofthefool was free so...........
 
 <p align="center">
 <img>
