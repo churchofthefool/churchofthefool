@@ -2,7 +2,7 @@
 <i>i do not know why the hive chose me but it did.</i>
 
 <p align="center">
-<br> i loved the name kimsoleum but churchofthefool was free so...........
+<br> on vol4 of lotm dwayne dantes u r SO HOT 🙏🙏🤤🤤🤤
 
 <p align="center">
 <img>
