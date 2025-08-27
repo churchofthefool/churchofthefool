@@ -2,7 +2,7 @@
 <i>i do not know why the hive chose me but it did.</i>
 
 <p align="center">
-<br> on vol4 of lotm dwayne dantes u r SO HOT 🙏🙏🤤🤤🤤
+<br> tonite we YES WE we will be cracking klein moretti at 6pm pst 🙏🤤
 
 <p align="center">
 <img>
